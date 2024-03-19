@@ -7,4 +7,4 @@ Hey BArbie, Hi KEN
 Who? 
 It's Britney bitch :D
 
-Stop Hammer time
+Think quick
